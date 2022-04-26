@@ -1,2 +1,5 @@
 # html5-css3
- Curso em Video
+ Curso em Video.
+
+ Estou aprendendo a criar sites e agora vou gerencialos.
+entao
