@@ -1,2 +1,6 @@
-Os dados Foram enviados!
-Aprenda PHP para saber o que fazer com eles. 
+!!!!!!!!!!!!!!!!!
+Naty seu telefone foi clonado e todos seus dados roubados.
+É para aprender a não clicar em link atoa. 
+KKKKKKKKKKKKKKKkkk
+!!!!!!!!!!1111!!!
+
